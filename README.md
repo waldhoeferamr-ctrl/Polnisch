@@ -1,0 +1,2 @@
+# Polnisch
+Konjugation
